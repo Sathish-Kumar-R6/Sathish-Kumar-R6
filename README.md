@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sathish-Kumar-R6
+- 👋 Hi, I’m Sathish Kumar
 - 👀 I’m interested in learning new practical things
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on any interns
