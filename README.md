@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sathish Kumar
-- 👀 I’m interested in learning new practical things
+- 👀 Interested in expanding my knowledge
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on any interns
 - 📫 Mail me at sathish662001@gmail.com
