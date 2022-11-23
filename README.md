@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sathish Kumar
 - 👀 Interested in expanding my knowledge
-- 🌱 I’m currently learning ...
-- 💞️ Budding engineer with creative thinking abilities
+- 🌱 Budding engineer with creative thinking abilities
+- 💞️ I’m currently learning ...
 - 📫 Mail me at sathish662001@gmail.com
 - 🏸 Love playing Badminton
 - 🦸‍♂️ Otaku
